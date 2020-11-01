@@ -8,7 +8,6 @@ Loves creative challenges, learning new thing and helping others to shape their 
 
 
 #### Education
-
 "Graphic Design", Bachelor
 State University of Technology
 Cherkasy city, Ukraine
@@ -30,7 +29,6 @@ City of Prague, Czech Republic
 2018, I'm studying 3 years now
 
 #### Work experience
-
 Graphics designer
 Regional Museum of Art
 Cherkasy city, Ukraine
@@ -54,8 +52,8 @@ Graphics designer
 Brigade till now 
 
 #### Languages
+Ukrainian and russian language - native speaker, Czech language - B2, English language - A2.
 
 #### Interests
-
 Most of my free time I spend reading books, drawing, watching the stars that add value to my life.
 
