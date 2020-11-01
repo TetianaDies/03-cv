@@ -43,7 +43,7 @@ City of Prague, Czech Republic
 
 Internship in the company
 Gama Gastro Technology
-Creating a flyer
+Creating a flyer and graphic design for web site
 2019-2020
 https://gamaholding.cz/
 
