@@ -49,7 +49,7 @@ https://gamaholding.cz/
 
 Advanced Analytics and Data Science s. r. o. (FF GROUP)
 Graphics designer
-Brigade till now 
+Summer job till now 
 
 #### Languages
 Ukrainian and russian language - native speaker, Czech language - B2, English language - A2.
