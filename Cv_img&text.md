@@ -1,4 +1,4 @@
-
+In my Curriculum vitae, I focused on my character traits. The fact that I am a designer without borders means that I can be determined to teach work, that I like to try something new, there is no word NO for me. Why a designer without borders? Find out more from my presentation: https://github.com/TetianaDies/05-presentation-stoytelling
 
 <img src="/img/CV_1_version.png" width="300">
 
